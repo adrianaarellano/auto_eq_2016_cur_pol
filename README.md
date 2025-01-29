@@ -1,0 +1,1 @@
+# auto_eq_2016_cur_pol
